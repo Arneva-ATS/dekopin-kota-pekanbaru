@@ -1,1 +1,1 @@
-# dekopin-kota-pekanbaru
+# dekopinda-karanganyar
